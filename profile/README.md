@@ -2,9 +2,9 @@ Chasse gardée Streaming vf les films et les livres tiennent une partie de mon c
 
 ** DERNIÈRE MISE À JOUR : 29 FÉVRIER 2024.**
 
-Regarder ➡ [Chasse gardée VOIR STREAMING](https://jm.filmy-zilla.lat/movie/1001026)
+Regarder ➡ [Chasse gardée VOIR STREAMING](https://jm.filmy-zilla.lat/fr/movie/1001026)
 
-Telecharger ➡ [Chasse gardée FILM COMPLETHD](https://jm.filmy-zilla.lat/movie/1001026)
+Telecharger ➡ [Chasse gardée FILM COMPLETHD](https://jm.filmy-zilla.lat/fr/movie/1001026)
 
 Sortie du film Chasse gardée : Date de sortie?
 La suite d’Chasse gardée, a été confirmé un mois après la sortie du premier film au cinéma. Le 19 mai 2023, Chasse gardée 2 avait été confirmé. Quand pourrons-nous le voir en salle ? Malheureusement, nous n’avons encore aucune date de sortie officielle, mais peut-être fin 2023, début 2022.
